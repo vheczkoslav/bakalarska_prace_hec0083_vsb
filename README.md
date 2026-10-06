@@ -1,0 +1,1 @@
+# bakalarska_prace_hec0083_vsb
